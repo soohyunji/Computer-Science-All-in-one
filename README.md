@@ -1,1 +1,1 @@
-# -loverly03@naver.com
+# loverly03@naver.com
